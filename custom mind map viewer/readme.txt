@@ -1,0 +1,1 @@
+this is a folder for the eventual mind map viewer currently I use mind view this is paid unless you go through sight and sound so I will convert the maps to word or pdf  until then
